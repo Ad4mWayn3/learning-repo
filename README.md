@@ -6,4 +6,8 @@ The thing with macadamia is, why is it so goddamn expensive!? I'd drink it forev
 
 ## Who actually came up with the name "macadamia"?
 
-Macadamia is for sure a fancy word, I quite like it.
+Macadamia is for sure a fancy word (tho not as fancy as palm) , I quite like it.
+
+## "Palm" should also get some attention
+
+And I think it's way cooler.
